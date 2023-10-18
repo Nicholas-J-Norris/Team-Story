@@ -5,3 +5,4 @@ The Baeckerei filled with Brot and Apfelkuchen!
 I sat in the biergarten and ate my brot and Apfelkuchen.
 The food was so good I forgot I was only wearing my Lederhose.
 I walked across the Hauptstrasse to get to the Schloss.
+On my way back to the hotel, I found the perfect pair of Lederhose to take home as a souvenir from my wonderful day in Germany.
