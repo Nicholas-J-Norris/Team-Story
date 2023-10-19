@@ -9,3 +9,4 @@ On my way back to the hotel, I found the perfect pair of Lederhose to take home 
 The Klimaanlage at the hotel was working fine.
 I then went to a Ratskeller to enjoy my last night in Germany.
 I got back to the hotel and turned off the Klimannlage
+Unfortunately, the klimaanlage was not working in the ratskeller and I was sweating bullets.
