@@ -8,3 +8,4 @@ I walked across the Hauptstrasse to get to the Schloss.
 On my way back to the hotel, I found the perfect pair of Lederhose to take home as a souvenir from my wonderful day in Germany.
 The Klimaanlage at the hotel was working fine.
 I then went to a Ratskeller to enjoy my last night in Germany.
+I got back to the hotel and turned off the Klimannlage
